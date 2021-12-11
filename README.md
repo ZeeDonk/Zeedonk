@@ -1,7 +1,9 @@
 ### Hi there 👋 I'm Zeedonk 
 I don't really do any big projects
+
 you can contact me on Discord Zee Donk #7673
 
+My pronouns are He/him
 <!--
 **ZeeDonk/Zeedonk** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
