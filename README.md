@@ -1,4 +1,6 @@
-### Hi there 👋
+### Hi there 👋 I'm Zeedonk 
+I don't really do any big projects
+
 
 <!--
 **ZeeDonk/Zeedonk** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
