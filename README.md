@@ -1,11 +1,13 @@
 ### Hi there 👋 I'm Zeedonk 
-Learning html
+Learning html aswell as JS
 
 you can contact me on Discord Zee Donk #7673
 
 My pronouns are He/him
 
-I am on the Human Resources team for Tydiumcraft as well as the web developer
+I am on the Human Resources team for Tydiumcraft as well as the web developer on discord
+
+I have no current project
 <!--
 **ZeeDonk/Zeedonk** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
