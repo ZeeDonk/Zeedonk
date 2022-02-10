@@ -8,6 +8,11 @@ My pronouns are He/him
 I am on the Human Resources team for Tydiumcraft as well as the web developer on discord
 
 I have no current project
+
+Join these servers 
+https://discord.gg/Evj3wEPJNB
+https://discord.gg/SrxS2mtPkf
+https://discord.gg/smABDzdwX2
 <!--
 **ZeeDonk/Zeedonk** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
