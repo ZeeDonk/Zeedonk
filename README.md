@@ -7,7 +7,7 @@ My pronouns are He/him
 
 I am on the Human Resources team for Tydiumcraft as well as the web developer on discord
 
-I have no current project
+I have no current projects
 
 Join these servers 
 https://discord.gg/Evj3wEPJNB
