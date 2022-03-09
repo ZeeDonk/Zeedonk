@@ -9,11 +9,17 @@ Discord Moderator for Tydiumcraft
 
 Former Jobs
 Creeper client: Admin
+
 Tydiumcraft: Staff Manager
+
 Jay Tech Community: Moderator
+
 Cloud Hosting Admin former co owner
+
 Anger of noobs  Noob Luitenant, Noob Commander, (left hand noob for 2 days)
+
 Anger of noobs elite  Noob Luitenant Left Hand noob (for 4 weeks) (Right Hand noob) for 1 day
+
 Gamer Group inc Admin, Moderator 
 
 I have no current projects
