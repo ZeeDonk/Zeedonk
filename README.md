@@ -5,12 +5,13 @@ you can contact me on Discord Zee Donk #7673
 
 My pronouns are He/him
 
-Discord Moderator for Tydiumcraft
 
-Former Jobs
-Creeper client: Admin
 
-Tydiumcraft: Staff Manager
+Former Jobs 
+
+Creeper client:Admin
+
+Tydiumcraft: Staff Manager Moderator
 
 Jay Tech Community: Moderator
 
