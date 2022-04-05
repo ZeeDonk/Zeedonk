@@ -15,7 +15,7 @@ Tydiumcraft: Staff Manager, Moderator
 
 Jay Tech Community: Moderator
 
-Cloud Hosting Admin former co owner
+Cloud Hosting Admin former co owner for old server 
 
 Anger of noobs  Noob Luitenant, Noob Commander, (left hand noob for 2 days)
 
