@@ -11,7 +11,7 @@ Former Jobs
 
 Creeper client:Admin
 
-Tydiumcraft: Staff Manager Moderator
+Tydiumcraft: Staff Manager, Moderator
 
 Jay Tech Community: Moderator
 
